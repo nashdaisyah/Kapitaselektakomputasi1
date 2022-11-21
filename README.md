@@ -1,0 +1,1 @@
+# Kapitaselektakomputasi1
